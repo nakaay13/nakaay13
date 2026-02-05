@@ -25,4 +25,8 @@ I am especially interested in frontend development, clean code, and building goo
 ---
 
 ## 📫 Contact
-- karolinabrzek01@gmail.com
+- 📧 Email: karolinabrzek01@gmail.com
+- 💼 LinkedIn: [linkedin.com/in/karolina-brzek-067b952b5](https://www.linkedin.com/in/karolina-brzek-067b952b5)
+
+
+
